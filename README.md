@@ -1,16 +1,15 @@
-## Hi there 👋
+cautiondivider2
 
-<!--
-**filthayfilths/filthayfilths** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+y46 d9
 
-Here are some ideas to get you started:
+Hii my name is Brandon, but you can also call me Filthay or Cheese.
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+I'm profic and a brandon fictionkin, also don't be afraid to come near me I don't bite :p
+
+I kinda sit around anywhere the person I'm sitting with so I don't have any exact locations, I don't rlly play this all that much tho.
+
+Doubles, antis, and ppl under 13 pls dni.
+
+d93 i6
+
+cautiondivider2
