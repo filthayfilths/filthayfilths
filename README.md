@@ -11,6 +11,6 @@ I kinda sit around anywhere the person I'm sitting with so I don't have any exac
 
 Doubles, antis, and ppl under 13 pls dni.
 
-<img width="99" height="56" alt="d93" src="https://github.com/user-attachments/assets/46ae8b3a-7d04-4040-a348-85a7058a4435" /> ![i6](https://github.com/user-attachments/assets/0a74fbbc-f968-4d50-9381-ea476b166f29) ![h28](https://github.com/user-attachments/assets/d6f31e40-4373-4747-9722-35a615ae2c50)
+<img width="99" height="56" alt="d93" src="https://github.com/user-attachments/assets/46ae8b3a-7d04-4040-a348-85a7058a4435" /> ![i6](https://github.com/user-attachments/assets/0a74fbbc-f968-4d50-9381-ea476b166f29) ![h28](https://github.com/user-attachments/assets/d6f31e40-4373-4747-9722-35a615ae2c50) <img width="99" height="56" alt="d31" src="https://github.com/user-attachments/assets/967b91b1-f071-4804-91f9-8d96d6780913" />
 
 ![cautiondivider2](https://github.com/user-attachments/assets/91e6fd91-e6d1-4350-82c2-8f2990705cf5)
