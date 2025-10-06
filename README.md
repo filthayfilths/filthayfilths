@@ -4,7 +4,7 @@
 
 ![h32](https://github.com/user-attachments/assets/6df6855e-8379-4168-a2c1-3405a29418d4) <img width="99" height="56" alt="for_cheese" src="https://github.com/user-attachments/assets/4d734a84-7dd7-4f88-a61c-072b1aba47c7" /> ![497509315-93ad1720-ca03-4c0f-92f3-bd70204b3a5a](https://github.com/user-attachments/assets/85cbed1f-a2fe-4abf-9b16-033a942f13a0)
 
-Hii my name is Brandon, but you can also call me Filthay or Cheese.
+Hii my name is Brandon, but you can also call me Filthy/Filthay or Cheese.
 
 I'm profic and a brandon fictionkin, also don't be afraid to come near me I don't bite :p
 
